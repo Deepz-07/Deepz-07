@@ -8,8 +8,6 @@
 
 - 📫 How to reach me **deepuvishwakarma44011@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1EAs-epr3PrTLC6LyX25nTcNzU_9Q7-Aa/view?usp=drive_link](https://drive.google.com/file/d/1EAs-epr3PrTLC6LyX25nTcNzU_9Q7-Aa/view?usp=drive_link)
-
 - ⚡ Fun fact **I am funny😅**
 
 <h3 align="left">Connect with me:</h3>
